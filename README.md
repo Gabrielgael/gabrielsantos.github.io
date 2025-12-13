@@ -1,2 +1,2 @@
-# gabrielsantos.github.io
+# gabrielgael.github.io
 Portfólio digital
